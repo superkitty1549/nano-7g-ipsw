@@ -6,3 +6,5 @@ then at the bottom isntead of the shoe it's a purple pixel heart and then all th
 and then theres custom icons (thank the pacific theme) and custom walpapers
 
 oh and also some of the stuff is purple instead of default teehee
+
+update daijoubu desu ka is the newest, font changed to amatic sc, hello kitty wallpaper replaced with some other thing, still pretty icons, changed font of the lock screen from comic sans ms to something less stupid
